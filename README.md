@@ -1,1 +1,2 @@
 Christopher Boyd
+boydc3@oregonstate.edu
